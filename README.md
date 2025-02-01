@@ -14,3 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+🏫 I am currently a second year BSIT student in the Philippines.
+🎨 I am fond of graphic designing, but I am a beginner.
+💬 Feel free to talk to me.
